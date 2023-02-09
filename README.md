@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aantonioogc and my full name is Antonio José González Castillo
-- 👀 I’m interested in 
+- 👀 I’m interested in travelling, learning and enjoying life.
 - 🌱 I’m currently learning Computer Engineering (Universidad de Málaga, UMA)
 - 📫 How to reach me ... aantoniioo_03 on Instagram
 
